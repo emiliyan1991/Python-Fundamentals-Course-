@@ -1,1 +1,1 @@
-# Courses in Sodtuni.bg
+# Courses in Softuni.bg
