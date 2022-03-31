@@ -1,1 +1,1 @@
-# Studies
+# Courses in Sodtuni.bg
